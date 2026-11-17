@@ -1,1 +1,1 @@
-# diploma-college-journal
+
